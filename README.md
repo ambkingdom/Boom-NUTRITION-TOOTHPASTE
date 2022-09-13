@@ -46,7 +46,7 @@
 ### [BOOM D-NAX](https://theicongroupvip.boomdnax.com/?fbclid=IwAR0i5TcfOo22DW1JuhOwpp1CqhegV4_uWg1hvg6NF5Oh9hPfKB923q84Rzc)
 ### [BOOM VIT C+](https://theicongroupvip.boomvitc.com/?fbclid=IwAR1ZDYVHptnPTt6QGYG5IKWOhZ34ZYdiNalwgeLZVregI85MZP2lEu5vnqU)
 ### [BOOM GLUTA SHOTS](https://theicongroupvip.glutashots.com/?fbclid=IwAR03PlU99BuG7Nh_-68Eu186rKPBUXa0DsJoPlda1mvVaq5zcnHHlUIXx_0)
-### [ZIP WHEY] (https://theicongroupvip.zipyourfat.com/?fbclid=IwAR0y-ypbHymcFpkXcvUtiOka0b2WDnkHKhEyEI6pMxuG9BL8A4bHEXVnvsc)
+### [ZIP WHEY](https://theicongroupvip.zipyourfat.com/?fbclid=IwAR0y-ypbHymcFpkXcvUtiOka0b2WDnkHKhEyEI6pMxuG9BL8A4bHEXVnvsc)
 ### [ZIP LOCK](https://theicongroupvip.zipyourfat.com/?fbclid=IwAR0y-ypbHymcFpkXcvUtiOka0b2WDnkHKhEyEI6pMxuG9BL8A4bHEXVnvsc)
 ### [BOOM COLLAGEN+](https://theicongroupvip.boomcollagenplus.com/?fbclid=IwAR2sPcJkKRRN3bIfEwZSmFmJ1cBlL3zunCMQJQt2GfKY625GkpwQBzANim0)
 ### [ROOM COFFEE](https://theicongroupvip.iconroomcoffee.com/?fbclid=IwAR1hVlKLZ1xteXgwZRDk67payNcix3Q71B0fGIa_yjnUmsIRO9kKa3fgabU)
